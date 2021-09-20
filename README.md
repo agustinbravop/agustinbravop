@@ -1,4 +1,4 @@
-### 👋 Hi! I'm Agus Bravo, a passion-driven avid learner.
+### 👋 Hi! I'm Agus Bravo, a passion-driven student.
 
 - 💻 Learning programming and software development 
 - 🎶 High chances I'm currently listening to music 
