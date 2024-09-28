@@ -1,4 +1,3 @@
-👋 Hi! I'm an information systems engineering student, also learning software development.
+👋 Hi! I'm a developer from Argentina!
 
-- 🎶 High chances I'm currently listening to music.
-- 🌎 From Argentina!
+🎶 High chances I'm currently listening to music.
