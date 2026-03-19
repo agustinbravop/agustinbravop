@@ -1,3 +1,3 @@
-Engineer. Tech optimist. Software wizard 🧙‍♂️ from Argentina. 
+Tryhard engineer. Tech optimist. Software wizard 🧙‍♂️ from Argentina. 
 
 Always listening to music 🎶
